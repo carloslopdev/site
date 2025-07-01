@@ -16,4 +16,4 @@ My family is nearby and doing well, just a couple of streets away, a five-minute
 
 I’m putting the controller down for now; this treacherous boss is giving me trouble. Next time I play, I’ll take it down. For now, I’m going to read a bit and get ready for bed.
 
-hese are my coordinates. The only ones that matter to me.
+These are my coordinates. The only ones that matter to me.
